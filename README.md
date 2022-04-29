@@ -1,1 +1,0 @@
-# aulatagssemanticasecsspw1
